@@ -1,4 +1,4 @@
-# 
+# vip XMind for Windows Addon | search-functionality + themes is the best XMind for Windows addon, featuring search-functionality and themes. Powerful, efficient, and optimized for
 
 
 
